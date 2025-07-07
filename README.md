@@ -24,4 +24,4 @@
 如果你正在寻找一个每天更新、无需注册、播放流畅、支持无码有码分类的日本AV资源站，我们将是值得信赖的选择。立即收藏，每次访问都有新片更新，看片从此更轻松。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/ss36986/20325 ）</span>
